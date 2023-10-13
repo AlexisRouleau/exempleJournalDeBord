@@ -8,10 +8,10 @@ Nommer deux points forts de votre préparation à l'examen. J'ai consacré du te
 Nommer deux points à améliorer de votre préparation à l'examen ainsi qu'une piste de solution pour les prochains examens. Consacrer plus de temps sur les études et je n'ai pas de deuxième pount négatif personnellement.
 
 ### Gestion du temps
-Comment avez-vous géré votre temps lors de l'examen?J'ai essayer de prioriser les questions que j'étais 100% sûr de bein répondre, puis ensuite faire celles que je n'étais pas sûr.
+Comment avez-vous géré votre temps lors de l'examen? J'ai essayer de prioriser les questions que j'étais 100% sûr de bien répondre, puis ensuite faire celles que je n'étais pas sûr.
 
 ### Outils et ressources
-Quels outils et ressources avez-vous utilisés pour la préparation à l'examen? J'ai utilisé des photos de notes de cours que j'avais pris au cours précedent de l'examen.
+Quels outils et ressources avez-vous utilisés pour la préparation à l'examen? J'ai utilisé des photos de notes de cours que j'avais pris au cours précedent de l'examen et le document PowerPoint de notes de cours.
 
 ### Difficultés
 Quelles sont les difficultés que vous avez rencontrées pendant l'examen? Il avait certaines matières que je n'avais pas eu le temps de bien étudier, donc certaines questions mon confus.
