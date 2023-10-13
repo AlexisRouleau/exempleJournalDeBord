@@ -2,7 +2,7 @@
 ## Rétrospective de l'examen (1 à 2 lignes par question)
 
 ### Points forts de la préparation à l'examen
-Nommer deux points forts de votre préparation à l'examen. J'ai consacrer du temps pour étudier. Peut-être pas assez, mais suffisamment pour avoir on bpn résultat a l'examen. Je n'ai pas perdu mon temps sur les questions qui m'était plus difficile a répondre.
+Nommer deux points forts de votre préparation à l'examen. J'ai consacré du temps pour étudier. Peut-être pas assez, mais suffisamment pour avoir on bon résultat a l'examen. Je n'ai pas perdu mon temps sur les questions qui m'était plus difficile a répondre.
 
 ### Points à améliorer
 Nommer deux points à améliorer de votre préparation à l'examen ainsi qu'une piste de solution pour les prochains examens. Consacrer plus de temps sur les études et je n'ai pas de deuxième pount négatif personnellement.
