@@ -12,6 +12,7 @@ Montrer nous l'allure visuelle et sonore qu'aura votre projet à l'aide d'un moo
 ![Capture d’écran 2023-12-16 211400](https://github.com/AlexisRouleau/exempleJournalDeBord/assets/143840998/978f5129-6205-45e3-9bfa-7d53e6302aba)
 ![Capture d’écran 2023-12-16 213013](https://github.com/AlexisRouleau/exempleJournalDeBord/assets/143840998/b57c5281-ba11-4d9f-8cf7-1768c928a1f3)
 
+![20231217_032638000_iOS](https://github.com/AlexisRouleau/exempleJournalDeBord/assets/143840998/d00e9ac4-08a9-403a-bdc8-22021c8a10e4)
 
 ### Technologies
 Décrivez quelles seront les technologies utilisées dans votre projet. 
